@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @GitCat-glitch
+- 👀 I’m interested in python.
+- 🌱 I’m currently learning python.
+- 💞️ I’m looking to collaborate on python.
+- 📫 How to reach me python.
+- 😄 Pronouns: python.
+- ⚡ Fun fact: python.
+- 🤑 python.
