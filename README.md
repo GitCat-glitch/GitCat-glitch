@@ -1,4 +1,4 @@
-Hi 👋 My name is GitCatGlitch
+Hi 👋 My name is GitCatGlitch :3
 =============================
 
 i love coding wierd things cuz its fun, i also love cats.
